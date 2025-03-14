@@ -1,0 +1,1 @@
+# Postura de la montaña
