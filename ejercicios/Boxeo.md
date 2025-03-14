@@ -31,3 +31,19 @@ Mantén un movimiento constante de pies. Avanza, retrocede, o muévete lateralme
 5. Respira correctamente: La respiración es clave en el boxeo. Exhala cuando lances un golpe y toma aire cuando te mueves o te detienes.
 
 6. Tiempo de entrenamiento: Comienza con sesiones de 2-3 minutos de actividad seguidos de un minuto de descanso. Realiza de 3 a 5 rondas, dependiendo de tu nivel de condición física.
+
+## Consejos y precauciones
+
+1. Calienta antes de comenzar: Haz una breve sesión de calentamiento (saltos, estiramientos dinámicos) para evitar lesiones.
+
+2. Controla la velocidad: No te apresures en los movimientos. Enfócate en la técnica y precisión antes de intentar velocidad o intensidad.
+
+3. Mantén la postura: Asegúrate de mantener una postura adecuada durante todo el ejercicio para evitar lesiones en la espalda o las rodillas.
+
+4. Varía las combinaciones: Cambia las combinaciones de golpes (jab, cruzado, uppercut, ganchos) para mantener el ejercicio interesante y trabajar diferentes partes del cuerpo.
+
+5. Descanso adecuado: Tómate tiempos de descanso entre rondas para evitar el agotamiento. El boxeo de sombra puede ser muy exigente, por lo que es importante escuchar a tu cuerpo.
+
+6. Hidratación: Asegúrate de mantenerte bien hidratado antes, durante y después del ejercicio, ya que el boxeo de sombra puede ser muy exigente físicamente.
+
+7. Evita lesiones: Si experimentas dolor o molestias, detén el ejercicio y evalúa si necesitas ajustar tu técnica o tomar más tiempo para recuperarte.
