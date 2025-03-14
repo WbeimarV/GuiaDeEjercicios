@@ -45,3 +45,16 @@ Mantén la postura de 30 segundos a 1 minuto, respirando de manera calmada y pro
 6. Relajación:
 
 Para salir de la postura, relaja lentamente los brazos, y comienza a liberar la tensión en las piernas, volviendo a la posición inicial de pie.
+
+## Consejos y precauciones
+1. Mantén la alineación correcta: Asegúrate de que la cabeza, cuello, y columna estén alineados. No inclines la cabeza hacia adelante ni hacia atrás, mantén el mentón paralelo al suelo.
+
+2. No fuerces los hombros: Los hombros deben estar relajados y hacia abajo, no tensos o levantados. Evita encoger los hombros hacia las orejas.
+
+3. Evita la tensión en los pies: Si tienes los pies demasiado tensos o separados, puedes perder el equilibrio. Mantén los pies firmemente apoyados sin forzar la presión.
+
+4. Respira de manera consciente: Concédele especial atención a tu respiración. Evita contener la respiración y enfócate en respirar profundamente, lo que te ayudará a mantener la calma y concentración.
+
+5. Realiza con conciencia: La postura de la montaña es perfecta para practicar la conciencia corporal. Cada vez que estés en esta postura, tómate un momento para sentir cómo tu cuerpo está alineado y cómo se conectan tus pies con el suelo.
+
+6. Si tienes problemas de equilibrio o dolor en las piernas: Si sientes dolor en las piernas o dificultad para mantener el equilibrio, puedes separar ligeramente los pies (a la altura de las caderas) para obtener más estabilidad.
