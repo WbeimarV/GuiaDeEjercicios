@@ -41,3 +41,19 @@ Ahora, da un paso hacia adelante con la pierna izquierda, repite el mismo movimi
 6. Ritmo y repeticiones:
 
 Realiza de 10 a 15 repeticiones por pierna, manteniendo el control del movimiento y la postura correcta. Puedes hacer de 2 a 3 series según tu nivel.
+
+## Consejos y precauciones
+1. Mantén el torso erguido: Asegúrate de no encorvarte al hacer la rotación. Mantén la espalda recta durante todo el ejercicio y activa el core para proteger la zona lumbar.
+
+2. No forzar la torsión: La rotación debe ser suave y controlada. Evita forzar el torso más allá de lo que te permita tu flexibilidad. Si sientes dolor en la espalda o el cuello, reduce la rotación.
+
+3. Control en la zancada: Mantén la rodilla de la pierna delantera alineada con el tobillo y no permitas que se desplace hacia adelante de manera excesiva. Asegúrate de que la rodilla trasera baje hacia el suelo, pero sin que toque bruscamente.
+
+4. Respira adecuadamente: La respiración es clave en este ejercicio. Inhala al dar el paso hacia adelante y exhala durante la rotación. Esto te ayudará a mantener la concentración y a evitar la tensión.
+
+5. Evita movimientos bruscos: Mantén los movimientos fluidos y controlados, tanto en la zancada como en la rotación. No hagas movimientos rápidos ni descontrolados.
+
+6. Ajusta el rango de movimiento: Si tienes problemas de flexibilidad en las caderas o la espalda, realiza la rotación de manera más ligera al principio, y gradualmente ve aumentando el rango de movimiento a medida que mejoras.
+
+7. Evita sobrecargar las rodillas: Si tienes problemas en las rodillas, realiza las zancadas con un rango de movimiento más pequeño y asegúrate de que la rodilla delantera no sobrepase los dedos del pie.
+
