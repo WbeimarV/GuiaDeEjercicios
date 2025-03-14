@@ -16,3 +16,28 @@ Las zancadas con rotación son un ejercicio dinámico que combina el trabajo de 
 
 - Previene lesiones: Al trabajar la flexibilidad y la movilidad de la cadera y la columna, las zancadas con rotación pueden ayudar a prevenir lesiones en las articulaciones y mejorar el rango de movimiento.
 
+## Instrucciones
+1. Posición inicial:
+
+Comienza de pie, con los pies alineados a la altura de los hombros. Mantén el abdomen contraído y los hombros relajados.
+
+2. Paso hacia adelante (zancada):
+
+Da un paso largo hacia adelante con la pierna derecha, flexionando ambas rodillas para bajar el cuerpo en una zancada. La rodilla delantera debe estar alineada con el tobillo (no debe pasarse de los dedos del pie) y la rodilla trasera casi tocando el suelo.
+
+3. Rotación del tronco:
+
+Mientras estás en la posición de zancada, gira el torso hacia el lado de la pierna adelantada (en este caso, gira el torso hacia la pierna derecha). Abre los brazos en cruz para facilitar la rotación y aumentar la torsión.
+Mantén la rotación por un segundo o dos, respirando profundamente.
+
+4. Regreso a la posición inicial:
+
+Gira el torso de vuelta al centro y empuja con la pierna delantera para regresar a la posición inicial de pie.
+
+5. Repetir con la otra pierna:
+
+Ahora, da un paso hacia adelante con la pierna izquierda, repite el mismo movimiento de rotación del torso hacia la pierna izquierda.
+
+6. Ritmo y repeticiones:
+
+Realiza de 10 a 15 repeticiones por pierna, manteniendo el control del movimiento y la postura correcta. Puedes hacer de 2 a 3 series según tu nivel.
