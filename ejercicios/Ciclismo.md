@@ -1,1 +1,4 @@
-# Subir y bajar escaleras
+# Subir y bajar escaleras para ciclismo
+
+## Descripción
+Subir y bajar escaleras es un ejercicio funcional excelente para los ciclistas, ya que imita los movimientos de pedaleo, trabajando especialmente los músculos de las piernas y el core. Este ejercicio ayuda a mejorar la fuerza, la resistencia y la estabilidad, lo cual es esencial para mantener un rendimiento óptimo en el ciclismo. Al realizarlo de manera controlada, no solo se beneficia la musculatura de las piernas, sino que también se trabaja la coordinación y la técnica de movimientos explosivos, muy útiles para el ciclismo en terrenos con pendientes o durante sprints.
