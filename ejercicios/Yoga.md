@@ -15,3 +15,33 @@ La Postura de la Montaña (Tadasana) es una postura básica y fundamental en el 
 5. Reduce el estrés y la ansiedad: Al estar de pie de manera erguida y respirando profundamente, esta postura ayuda a calmar la mente y a reducir la tensión.
 
 6. Promueve la circulación: La alineación adecuada de la postura favorece la circulación sanguínea y mejora la energía general del cuerpo.
+
+## Instrucciones
+1. Posición inicial:
+
+Comienza de pie, con los pies juntos o ligeramente separados, dependiendo de lo que te resulte más cómodo. Los pies deben estar alineados con las caderas.
+Distribuye el peso de manera uniforme en ambos pies, sintiendo que están firmemente conectados con el suelo.
+
+2. Activación de las piernas:
+
+Aprieta ligeramente los muslos y activa las piernas. Levanta las rodillas y alarga las piernas, manteniendo los pies firmes en el suelo.
+Levanta los arcos de los pies y distribuye el peso desde los talones hasta los dedos de los pies.
+
+3. Postura del torso:
+
+Endereza la columna vertebral, llevando los hombros hacia atrás y hacia abajo, abriendo el pecho.
+Imagina que una cuerda está tirando de la coronilla de tu cabeza, alargando la parte superior de tu cuerpo.
+
+4. Brazos y manos:
+
+Deja los brazos extendidos a los costados del cuerpo, con las palmas de las manos mirando hacia adelante o hacia el cuerpo.
+Mantén los dedos de las manos juntos y activos, como si estuvieras estirándolos hacia abajo.
+
+5. Respiración:
+
+Respira profundamente y de manera relajada, llenando los pulmones de aire mientras te mantienes en la postura.
+Mantén la postura de 30 segundos a 1 minuto, respirando de manera calmada y profunda.
+
+6. Relajación:
+
+Para salir de la postura, relaja lentamente los brazos, y comienza a liberar la tensión en las piernas, volviendo a la posición inicial de pie.
