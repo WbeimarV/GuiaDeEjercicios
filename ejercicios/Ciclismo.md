@@ -37,3 +37,18 @@ Controla el descenso y mantén el equilibrio en todo momento, manteniendo la esp
 
 Comienza con 2 a 3 series de 10-15 repeticiones (subir y bajar 1 escalón cuenta como una repetición). Puedes ajustar el número de repeticiones según tu nivel de condición física.
 Si eres principiante, puedes empezar con un solo escalón y luego aumentar la dificultad al subir más escalones.
+
+## Consejos y precauciones
+1. Mantén la postura correcta: Es crucial mantener una postura erguida tanto al subir como al bajar las escaleras. Evita inclinarte hacia adelante o encorvar la espalda. Mantén el abdomen contraído para proteger la zona lumbar.
+
+2. Controla el movimiento: No te apresures al subir o bajar las escaleras. Realiza el ejercicio de manera controlada, tanto en el ascenso como en el descenso, para evitar caídas o lesiones.
+
+3. Usa los músculos correctos: Asegúrate de empujar con el talón y no con los dedos de los pies al subir. Esto activará los músculos de los glúteos y los muslos, que son esenciales para el pedaleo en ciclismo.
+
+4. Evita el impacto excesivo: Al bajar, no dejes que las rodillas se doblen demasiado. Asegúrate de que el aterrizaje sea suave, absorbiendo el impacto con las piernas, no con las rodillas o la espalda.
+
+5. Hidratación y descanso: Mantente hidratado antes y después del ejercicio, ya que las escaleras pueden aumentar el ritmo cardíaco. Tómate un tiempo para descansar entre series y asegúrate de no sobrecargar las piernas.
+
+6. Comienza con escaleras bajas: Si eres principiante, comienza con escaleras de poca altura y aumenta la dificultad a medida que tu condición física mejora.
+
+7. Si tienes problemas de rodillas o caderas: Si experimentas dolor o molestias en las rodillas o caderas al subir o bajar escaleras, es recomendable disminuir la altura de los escalones o realizar el ejercicio de manera más suave.
