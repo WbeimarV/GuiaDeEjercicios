@@ -42,3 +42,17 @@ Es importante mantener un ritmo constante y no apresurarse. Asegúrate de realiz
 
 Si eres principiante, realiza repeticiones cortas de 25 metros, descansando entre cada repetición. A medida que vayas mejorando, puedes incrementar la distancia o el tiempo.
 
+## Consejos y precacuiones
+1. Calienta antes de nadar: Asegúrate de realizar un calentamiento adecuado antes de entrar al agua. Esto ayudará a preparar tus músculos y evitará lesiones.
+
+2. Mantén una buena técnica: La técnica es clave en el estilo mariposa. Asegúrate de no hacer movimientos bruscos con los brazos o las piernas, ya que esto puede generar tensión innecesaria y fatiga rápidamente.
+
+3. Evita elevar demasiado la cabeza: Al respirar, no levantes demasiado la cabeza fuera del agua, ya que esto puede desbalancear el cuerpo y dificultar el movimiento de las piernas.
+
+4. Trabaja en la coordinación: Al principio, la coordinación entre los brazos y las piernas puede ser difícil, pero con práctica mejorarás gradualmente. Trata de realizar el movimiento con fluidez, sin forzar ningún segmento.
+
+5. Descansa adecuadamente: El estilo mariposa puede ser muy exigente, especialmente si estás comenzando. Tómate tiempo para descansar entre series y no te exijas más de lo que puedas manejar.
+
+6. Hidratación: Aunque estés en el agua, es importante mantenerse hidratado. Bebe agua regularmente durante tus entrenamientos, especialmente si nadas durante largos periodos.
+
+7. Evita lesiones: Si sientes dolor o molestias en los hombros, las caderas o la espalda, revisa tu técnica. El estilo mariposa puede ser exigente, por lo que es importante ajustar la postura y los movimientos para evitar lesiones.
