@@ -15,3 +15,25 @@ Subir y bajar escaleras es un ejercicio funcional excelente para los ciclistas, 
 - Mejora del equilibrio y la coordinación: Subir y bajar escaleras requiere de un buen control del movimiento, lo que ayuda a mejorar el equilibrio y la coordinación, dos habilidades clave para los ciclistas en terrenos irregulares.
 
 - Aumento de la movilidad de caderas y rodillas: El movimiento de flexión y extensión de las piernas al subir y bajar escaleras mejora la movilidad de las caderas y las rodillas, lo que puede contribuir a un mejor pedaleo.
+
+## Instrucciones
+1. Posición inicial:
+
+Colócate frente a un tramo de escaleras, con los pies separados a la altura de las caderas.
+Mantén la espalda recta y el abdomen contraído. Puedes colocar las manos sobre las caderas o mantenerlas a los lados para mayor estabilidad.
+
+2. Subir las escaleras:
+
+Da un paso firme con la pierna derecha, subiendo al primer escalón. Asegúrate de empujar con el talón para activar los glúteos y los músculos de las piernas.
+Lleva la pierna izquierda al mismo escalón para completar el movimiento. Asegúrate de que las rodillas estén alineadas con los dedos de los pies.
+Repite el movimiento, subiendo de un escalón a otro de manera controlada, alternando las piernas.
+3. Bajar las escaleras:
+
+Al bajar, da un paso hacia atrás con la pierna derecha, asegurándote de que la rodilla no se desplace demasiado hacia adelante.
+Baja de manera controlada, usando los músculos de las piernas para absorber el impacto y evitar lesiones. Después, lleva la pierna izquierda al siguiente escalón.
+Controla el descenso y mantén el equilibrio en todo momento, manteniendo la espalda recta.
+
+4. Ritmo y repeticiones:
+
+Comienza con 2 a 3 series de 10-15 repeticiones (subir y bajar 1 escalón cuenta como una repetición). Puedes ajustar el número de repeticiones según tu nivel de condición física.
+Si eres principiante, puedes empezar con un solo escalón y luego aumentar la dificultad al subir más escalones.
