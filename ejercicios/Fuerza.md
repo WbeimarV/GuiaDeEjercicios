@@ -33,3 +33,11 @@ El trabajo muscular intenso que implica este ejercicio contribuye a un mayor gas
 4. **Repeticiones y series:**  
    - Realiza 3 series de 10 repeticiones con un peso adecuado para tu nivel.  
    - Descansa 60-90 segundos entre series.
+
+## Consejos y Precauciones
+✅ **Calienta antes de entrenar:** Realiza movilidad articular y activaciones musculares para preparar las piernas y la espalda.  
+✅ **Mantén la postura correcta:** Evita arquear la espalda y asegúrate de que las rodillas no sobrepasen demasiado la punta de los pies.  
+✅ **No uses demasiado peso al inicio:** Aumenta la carga progresivamente para evitar lesiones.  
+✅ **Respira correctamente:** Inhala al bajar y exhala al subir.  
+✅ **Si eres principiante, usa solo tu peso corporal:** Antes de añadir peso, domina la técnica de la sentadilla básica.  
+✅ **Escucha a tu cuerpo:** Si sientes dolor en las rodillas o la espalda baja, revisa tu postura o consulta con un entrenador.  
