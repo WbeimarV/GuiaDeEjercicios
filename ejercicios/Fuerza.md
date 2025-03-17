@@ -17,7 +17,10 @@ Al realizar sentadillas correctamente, se fortalece la estabilidad de las rodill
 ### 🔄 Acelerar el metabolismo  
 El trabajo muscular intenso que implica este ejercicio contribuye a un mayor gasto calórico, favoreciendo la quema de grasa.
 <<<<<<< HEAD
+<<<<<<< HEAD
 =======
+=======
+>>>>>>> Fuerza
 ## Instrucciones
 1. **Posición inicial:**  
    - Colócate de pie con los pies separados a la altura de los hombros.  
@@ -43,4 +46,7 @@ El trabajo muscular intenso que implica este ejercicio contribuye a un mayor gas
 ✅ **Respira correctamente:** Inhala al bajar y exhala al subir.  
 ✅ **Si eres principiante, usa solo tu peso corporal:** Antes de añadir peso, domina la técnica de la sentadilla básica.  
 ✅ **Escucha a tu cuerpo:** Si sientes dolor en las rodillas o la espalda baja, revisa tu postura o consulta con un entrenador.  
+<<<<<<< HEAD
 >>>>>>> fcdfcf2 (docs: 📝 Consejos y precauciones.)
+=======
+>>>>>>> Fuerza
