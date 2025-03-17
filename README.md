@@ -10,3 +10,5 @@ Bienvenido a nuestra guía de ejercicios físicos, donde compartimos descripcion
 - [Ejercicio de Natacion](ejercicios/Natacion.md): Trabaja todos los músculos.
 - [Ejercicio de Yoga](ejercicios/Yoga.md): Fomenta la relajación y la flexibilidad.
 - [Ejercicio de Ciclismo](ejercicios/Ciclismo.md): Gran ejercicio cardiovascular de bajo impacto.
+
+¡Esperamos que encuentres útiles estos ejercicios y te inspires para mantenerte activo y saludable!
